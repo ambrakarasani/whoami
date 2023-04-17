@@ -1,0 +1,4 @@
+# Ambra Karasani
+## Autobiografia ime
+
+Une jam Ambra Karasani. Kam lindur me 30 tetor 1999 ne qytetin e Fierit,ku kam jetuar deri ne moshen 19 vjecare. Kam perfunduar 9-vjecaren ne shkollen Naim Frasheri. Me pas kam ndjekur gjimnazin profesional 4-vjecar Petro Sota ne drejtimin e fushes se informatikes. Pas perfundimit te ketyre studimeve vendosa te ndjek arsimin e larte ne universitetin e Durresit Aleksander Moisiu ne fakultetin e Teknplogjise se informacionit ne degen Multimedia dhe Televizion Dixhital. Perfundova arsimin e larte dhe u diplomova ne vitin 2022.Momentalisht jam e interesuar ne fushen e programimit dhe po marr njohuri ne lidhje me kete fushe.
